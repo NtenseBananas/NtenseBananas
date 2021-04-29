@@ -2,9 +2,10 @@
 - 👀 I’m interested in Quality 🧐, Transportation 🚄 , Racing 🏁 , and Travel ✈ for SURE!!!
 - 📚 I’m currently learning... this is a trend btw.
 - ✌ I’m looking to collaborate with Supporting Teams
-- 📫 How to reach me 
-- 🐦 Twitter @_Z94K
-- 📷 Instagram @azzambinfaisal 
-- 👻 Snapchat: OnlyFans 😂 
-- 👾 Discord: NtenseBanana#7045
-- 💯 Quality over quantity
+- 
+- 📫 How to reach me 👇
+- 🐦   Twitter @_Z94K
+- 📷   Instagram @azzambinfaisal 
+- 👻   Snapchat: OnlyFans 😂 
+- 👾   Discord: NtenseBanana#7045
+- 💯   Quality over quantity
