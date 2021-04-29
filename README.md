@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NtenseBananas call me Mr.Khayyat or whatever easier for u, Totally cool.
-- 👀 I’m interested in The 1%, Cars, Racing, and Travel for SURE!!!
-- 🌱 I’m currently learning... this is a trend btw.
+- 👀 I’m interested in Quality 🧐, Transportation 🚄 , Racing 🏁 , and Travel ✈ for SURE!!!
+- 📚 I’m currently learning... this is a trend btw.
 - ✌ I’m looking to collaborate with Supporting Teams
 - 📫 How to reach me 
 - 🐦 Twitter @_Z94K
